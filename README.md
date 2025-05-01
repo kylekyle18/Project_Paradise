@@ -1,2 +1,1 @@
-Kyle Daniel Tan
-Vince Nikolai Ledesma
+Kyle Daniel Tan & Vince Nikolai Ledesma
